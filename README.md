@@ -1,2 +1,0 @@
-# oucrht.github.io
-## welcome
